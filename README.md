@@ -1,4 +1,4 @@
-- Hi, I’m @CarlTheDeveleporer
+- Hi, I’m GoatBoy!
 - Creator of Darkness Awakening
 - Pronouns: he/him
 
